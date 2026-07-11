@@ -1,4 +1,4 @@
-<p align="center"><img src="https://komarev.com/ghpvc/?username=tigersprint&color=E9A135&label=ㅤtwitchㅤviewersㅤ" alt="Centered Image">
+<p align="center"><img src="https://komarev.com/ghpvc/?username=tigersprint&color=9085FF&label=ㅤtwitchㅤviewersㅤ" alt="Centered Image">
 
 <p align="center"><img width="800" height="650" alt="image" src="https://files.catbox.moe/bk5zkm.jpg" />
 <p align="center">mostly spotted with charming-xiaomao or IyricaI bc they the biggie trio 
