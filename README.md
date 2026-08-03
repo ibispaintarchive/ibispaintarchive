@@ -5,3 +5,4 @@
 <p align="center"> ────────────────────────────────────────────────────
 <p align="center"> bmff guys... i love getting new oomfs 
 <p align="center"> i love my biggie trio bro even if we eitehr be active asf or talk every blue moon
+[![prideduoimage](https://files.catbox.moe/bk5zkm.jpg)](https://github.com/jeongtaeui)
