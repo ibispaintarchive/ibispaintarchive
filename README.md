@@ -12,6 +12,8 @@
   <a href="https://github.com/charming-xiaomao"><sup>cas</sup></a>
    <br>
   <a href="https://github.com/matchingduo"><sup>me and cas’s shared account </sup>
+<br>
+   <a href="https://github.com/biggietrio"><sup>me and my trio's shared account </sup>
   <br> <br>
 <img src="https://file.garden/amjClnAAXW4qEKsH/IMG_1102.jpg" width="200" alt="Description"><br>
     
